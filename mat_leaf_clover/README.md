@@ -1,0 +1,1 @@
+![](clover_leaf_BaseColor.png)
